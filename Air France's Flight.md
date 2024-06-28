@@ -10,6 +10,6 @@ We provide comprehensive support for Air France Flight Change, Name Change, and 
 • Understanding Air France flight change costs
 • Answering frequently asked questions about other airlines
 
-For any of these queries, we are here to provide quick and effective solutions.
+We are here to provide quick and effective solutions for any of these queries.
 
 For more info visit our website: https://sites.google.com/view/air-france-change-policy/
