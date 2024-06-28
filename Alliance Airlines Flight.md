@@ -1,6 +1,6 @@
 +𝟔𝟏 (𝟏𝟖𝟎𝟎) 𝟕𝟏𝟖𝟓𝟔𝟖 𝐀𝐥𝐥𝐢𝐚𝐧𝐜𝐞 𝐀𝐢𝐫𝐥𝐢𝐧𝐞𝐬 𝐅𝐥𝐢𝐠𝐡𝐭 𝐓𝐢𝐜𝐤𝐞𝐭 𝐂𝐚𝐧𝐜𝐞𝐥𝐥𝐚𝐭𝐢𝐨𝐧 𝐚𝐧𝐝 𝐑𝐞𝐟𝐮𝐧𝐝 𝐏𝐨𝐥𝐢𝐜𝐲
 
-Understanding Alliance Airlines' cancellation and refund policies can save you time, 
+Understanding ' cancellation and refund policies can save you time, 
 money, and stress. Non-refundable tickets do not offer refunds on the ticket 
 price, but taxes and fees may be refunded. Cancellations after the 24-hour 
 grace period incur fees from $200 to $500. Refundable tickets offer a full 
