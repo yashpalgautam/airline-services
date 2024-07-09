@@ -33,4 +33,4 @@
 
 **Recent Updates**: Stay informed about any changes to Emirates' cancellation policies for the latest guidelines.
 
-For more information, contact Emirates Customer Service at +61 (1800) 718568.
+For more information, For more info visit our website: (https://sites.google.com/view/emirates-airlines-flightcancel/home) OR contact Emirates Customer Service at +61 (1800) 718568.
