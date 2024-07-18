@@ -34,6 +34,7 @@ Air Canada's date change policy allows passengers to change their flight dates e
 
 • Request help from an Air Canada representative.
 
+
 **Fees and Exceptions:**
 
 • Date change fees are waived if changes are made within 24 hours of booking.
@@ -50,4 +51,7 @@ Air Canada's date change policy allows passengers to change their flight dates e
 
 For further help, contact Air Canada’s customer support at +1(888) 748-0704 or visit their social media channels.
 
-For more information, for more info visit our website: (https://sites.google.com/view/aircanadadatechangepolicy/home) OR contact Air Canada Flight Customer Service at +1(888) 748-0704.
+For more information, for more info visit our website to [change the date of your Air Canada Flight](https://sites.google.com/view/aircanadadatechangepolicy/home) OR contact Air Canada Flight Customer Service at +1(888) 748-0704.
+
+
+For getting any other [flight cancellation](https://flightcancellationpolicy.com/) services connect with us for better support in your travel journey.
